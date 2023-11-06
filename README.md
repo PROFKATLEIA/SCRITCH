@@ -2,4 +2,4 @@
 
 Equipe: Katleia e João
 
-Professora:  Katleia e Marcos
+Professor(s):  Katleia e Marcos
